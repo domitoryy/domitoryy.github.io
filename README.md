@@ -1,4 +1,4 @@
-# тут что-то будет
+# Links and Files
 
-## domitoryy / yrotimod / mobruh
+## domitoryy's files
 ### https://domitoryy.github.io/

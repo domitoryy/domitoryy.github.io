@@ -1,4 +1,4 @@
-# Links and Files
+# Links
 
-## domitoryy's files
+## domitoryy's links
 ### https://domitoryy.github.io/
